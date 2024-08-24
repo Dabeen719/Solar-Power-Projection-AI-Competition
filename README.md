@@ -1,0 +1,1 @@
+# Solar-Power-Projection-AI-Competition
